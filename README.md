@@ -1,0 +1,1 @@
+# namaztakipzinciri.github.io
